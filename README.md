@@ -9,9 +9,12 @@ Nothing special here but follow my social media and more :) XD
 <p align="right">
 
 <h3 align="left">Connect me on games:</h3>
-Exynn
 
-Entah knp gabut aj bikin ginian XD
+
+
+
+
+>Entah knp gabut aj bikin ginian XD
 > ![1682432906509](https://user-images.githubusercontent.com/89013668/234479106-375d0494-89df-4642-9be3-cabfc0a9cb76.jpg)
 > ![1682491536152](https://user-images.githubusercontent.com/89013668/234492198-e9e4c6dc-f615-49a5-9e39-915181506b11.jpg)
 [Click here !!](https://youtu.be/dQw4w9WgXcQ)
