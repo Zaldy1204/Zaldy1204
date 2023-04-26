@@ -1,5 +1,5 @@
 # Hello!
-My name is zaldy but u can call me al
+My name is `zaldy` but u can call me al
 
 Nothing special here but follow my Instagram and more :)
 <h3 align="left">Silahturahmi:</h3>
