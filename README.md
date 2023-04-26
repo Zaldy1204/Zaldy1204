@@ -9,6 +9,6 @@ Nothing special here but follow my social media and more :)
 <a href="https://www.youtube.com/c/Zaldy004" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="zaldy="30" width="40" /></a>
 
 
-Here special from me XD
-![1682432906509](https://user-images.githubusercontent.com/89013668/234479106-375d0494-89df-4642-9be3-cabfc0a9cb76.jpg)
-
+Deleted soon
+> ![1682432906509](https://user-images.githubusercontent.com/89013668/234479106-375d0494-89df-4642-9be3-cabfc0a9cb76.jpg)
+![1682491536152](https://user-images.githubusercontent.com/89013668/234492198-e9e4c6dc-f615-49a5-9e39-915181506b11.jpg)
