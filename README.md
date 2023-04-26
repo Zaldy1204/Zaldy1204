@@ -1,6 +1,6 @@
 # [Hello!!](https://discord.gg/eGwDEy5KTZ)
 My name is `zaldy` but u can call me al
-
+nick on ph Zaldy1204
 Nothing special here but follow my social media and more :) XD
 <h3 align="left">Silahturahmi:</h3>
 <p align="left">
