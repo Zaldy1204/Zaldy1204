@@ -1,4 +1,6 @@
 # [Hello!!](https://discord.gg/eGwDEy5KTZ)
+<img src=https://images-ext-1.discordapp.net/external/MeR--fKEK_BWlwjgPOLd8NB1kxn3OXrBwE7qrPVlz3E/https/media.tenor.com/K6hrP0VxZ0AAAAPo/rias-gremory->
+
 My name is `zaldy` but u can call me al
 Nothing special here but follow my social media and more :) XD
 <h3 align="left">sir sunda ireng:</h3>
