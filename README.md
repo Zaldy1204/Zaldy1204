@@ -30,6 +30,5 @@ nanti
 
 
 
-[here for free bitcoin !!](https://youtu.be/dQw4w9WgXcQ)
+[orang](https://youtu.be/dQw4w9WgXcQ)
 
-jangan terlalu gegabah 
