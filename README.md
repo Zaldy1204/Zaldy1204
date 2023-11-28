@@ -1,8 +1,8 @@
-# [Hello!!](https://discord.gg/eGwDEy5KTZ)
+# [Hello!!](https://youtu.be/dQw4w9WgXcQ)
 ![giphy](https://user-images.githubusercontent.com/89013668/235367034-1bbffef2-5323-4ffb-84c6-55d151892738.gif)
 
 
-My name is `zaldy` but u can call me al
+My name is ``ZALDY`` but u can call me al
 >Nothing special here but follow my social media and more :) XD
 <h3 align="left">sosmed orang:</h3>
 <p align="left">
@@ -11,13 +11,13 @@ My name is `zaldy` but u can call me al
 <a href="https://www.youtube.com/c/Zaldy004" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="zaldy" height="40" width="40" /></a>
 <p align="right">
 
-<h3 align="left">Connect me on games:</h3>
+<h3 align="left">tu tu tu tuu MAX VERSTAPPEN:</h3>
 
-nanti
+kapan kapan 
 
 
 
-<h5 align="left">Hasil nganggur:</h5>
+<h7 align="left">Hasil nganggur:</h7>
 
 
 
