@@ -5,10 +5,9 @@
 
 My name is ``exynn`` but u can call me diss nat
 >Nothing special here but follow my social media and more :) XD
-<h3 align="left">sosmed orang:</h3>
+<h3 align="left">connect :</h3>
 <p align="left">
 <a href="https://www.facebook.com/mhd.afrilzaldy.7" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="zaldy" height="40" width="40" /></a>
-<a href="https://www.youtube.com/c/Zaldy004" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="zaldy" height="40" width="40" /></a>
 <p align="right">
 
 <h3 align="left">apcb:</h3>
